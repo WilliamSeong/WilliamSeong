@@ -1,3 +1,3 @@
 ## Hi there 👋 I'm William
 
-**PhD Cybersecurity** @ CUNY City College | **B.A. Computer Science** @ Boston University
+**PhD Cybersecurity** @ CUNY City College | **B.A. Computer Science** @ Boston University | High School Diploma @ The Bronx High School of Science
