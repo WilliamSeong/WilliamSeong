@@ -1,4 +1,4 @@
-## Hi there 👋 I'm William
+## William Seong
 
 **PhD Cybersecurity** @ CUNY City College
 <br>
