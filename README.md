@@ -1,6 +1,6 @@
 ## William Seong
 
-**PhD Cybersecurity** @ CUNY City College
+**PhD Electrical Engineering** @ CUNY City College
 <br>
 **B.A. Computer Science** @ Boston University
 <br>
